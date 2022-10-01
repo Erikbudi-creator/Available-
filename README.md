@@ -4,6 +4,7 @@
 <br>
 <div align="center">
 <img src="https://i.imgur.com/jx17oHT.gif">
+<img src="https://telegra.ph/file/14f2d43282cef591df48c.jpg">
 </div>
 <br>
 </p>
